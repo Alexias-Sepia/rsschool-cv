@@ -1,9 +1,9 @@
 # Сергеев Алексей 
 ***
 ## Контактная информация:
-**E-mail:** zaurus2008@yandex.ru
+* **E-mail:** zaurus2008@yandex.ru
 
-**Telegram:** @Zaurus2008
+* **Telegram:** @Zaurus2008
 
 ***
 ## Обо мне:
