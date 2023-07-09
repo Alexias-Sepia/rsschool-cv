@@ -1,1 +1,1 @@
-https://Alexias-Sepia.github.io/rsschool-cv/cv
+https://Alexias-Sepia.github.io/rsschool-cv/
